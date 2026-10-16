@@ -5,5 +5,4 @@
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/8cdcff6e95679d6e48ed2328fc0f58e3275c89ad/IMG_8575.jpeg)
 
 
-
-${\color{#58559E}{*I was never really good interacting with people*} }$
+<span style="color: #0000ff;">hello?</span>
