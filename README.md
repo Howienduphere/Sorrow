@@ -7,3 +7,6 @@
 $${\color{lightblue}Art \space made \space by \space me ✩*⢄⢁✧ }$$
 
 
+
+
+*I'm socially awkwardly and I don't know much how to interact with people so bear with me pls while I try to learn how to not panic I tried my best*
