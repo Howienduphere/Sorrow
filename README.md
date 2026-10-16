@@ -20,3 +20,5 @@ $${\color{#6964B0} I \space was \space never \space really \space good \space in
 *I'm socially awkwardly and I don't know much how to interact with people so bear with me pls while I try to learn how to not panic I tried my best*
 
 *Sometimes or most of the time I'm offtab So don't think I'm ignoring you I eventually respond ˶o̴̶̷᷄‸o̴̶̷̥᷅˶*
+
+![image alt](https://github.com/Howienduphere/Sorrow/blob/c2ed5f9c005cbb7bf4e43387d851d1c5dac3040d/IMG_8595.jpeg) 
