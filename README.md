@@ -7,7 +7,7 @@
 $${\color{lightblue}Art \space made \space by \space me ✩*⢄⢁✧ }$$
 
 
-![image alt](https://github.com/Howienduphere/Sorrow/blob/2fb890b842e772a21eab90a902bb9bcc94a73092/208%20sin%20ti%CC%81tulo_20261016172329.png)
+![image alt](https://github.com/Howienduphere/Sorrow/blob/55f4677ccab57e8b96c57161630e803d224739a5/IMG_8593.png)
 
 $${\color{#6964B0}Kinnie \space of \space these \space sillys}$$
 
