@@ -10,7 +10,7 @@ $${\color{lightblue}Art \space made \space by \space me ✩*⢄⢁✧ }$$
 
 
 
-$${\color{lightpurple}Kinnie \space of \space these \space sillys}$$
+$${\color{#6964B0}Kinnie \space of \space these \space sillys}$$
 
 
 
