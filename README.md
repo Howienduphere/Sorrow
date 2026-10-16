@@ -14,3 +14,5 @@ $${\color{#6964B0}Kinnie \space of \space these \space sillys}$$
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/6112ccc7df316fd60cd521a1383ea1315356da44/IMG_8575.jpeg) 
 
 *I'm socially awkwardly and I don't know much how to interact with people so bear with me pls while I try to learn how to not panic I tried my best*
+
+*Sometimes or most of the time I'm offtab So don't think I'm ignoring you I eventually respond ˶o̴̶̷᷄‸o̴̶̷̥᷅˶*
