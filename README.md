@@ -24,3 +24,5 @@ $${\color{#6964B0} I \space was \space never \space really \space good \space in
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/c2ed5f9c005cbb7bf4e43387d851d1c5dac3040d/IMG_8595.jpeg) 
 
 $${\color{#6F9CC7}20yo. \space \color{#B8BFE3}Asexual. \space \color{#D2C1E6}Multifandom}$$
+
+$${\color{#B2BCEB}Eng/Esp}$$
