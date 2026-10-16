@@ -6,4 +6,4 @@
 
 
 
-${\color{#58559E}{*I was never really good interacting with people*}}$
+${\color{#58559E}{*I was never really good interacting with people*} }$
