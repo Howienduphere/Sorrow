@@ -29,4 +29,4 @@ $${\color{#B2BCEB}Eng/Esp}$$
 
 $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space english \space sometimes \space I \space keep \space practicing \space it \space since \space it's \space not \space my \space first \space language \space}$$
 
-![image alt](https://github.com/Howienduphere/Sorrow/blob/20c37181b252b28760611b3a6ee39ae96f6f8d2f/IMG_8595.jpeg) 
+![image alt](https://github.com/Howienduphere/Sorrow/blob/917d7f600462d483a8dc91d69d2f15fd1ef5920e/IMG_8598.jpeg) 
