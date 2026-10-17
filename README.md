@@ -27,4 +27,4 @@ $${\color{#6F9CC7}20yo. \space \color{#B8BFE3}Asexual. \space \color{#D2C1E6}Mul
 
 $${\color{#B2BCEB}Eng/Esp}$$
 
-$${\color{#B891B5}I'm sorry for the bad English sometimes I keep practicing it since it's not my first language}$$
+$${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space english \space sometimes \space I \space keep \space practicing \space it \space since \space it's \space not \space my \space first \space language \space}$$
