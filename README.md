@@ -26,3 +26,5 @@ $${\color{#6964B0} I \space was \space never \space really \space good \space in
 $${\color{#6F9CC7}20yo. \space \color{#B8BFE3}Asexual. \space \color{#D2C1E6}Multifandom}$$
 
 $${\color{#B2BCEB}Eng/Esp}$$
+
+$${\color{#B891B5}I'm sorry for the bad English sometimes I keep practicing it since it's not my first language}$$
