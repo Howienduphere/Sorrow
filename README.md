@@ -32,4 +32,4 @@ $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space engli
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/917d7f600462d483a8dc91d69d2f15fd1ef5920e/IMG_8598.jpeg) 
 
 
-$\color{#E8CFE4}{\textsf{𓆩♡𓆪dni}}$
+▸ $\color{#E8CFE4}{\textsf{Dni}}$
