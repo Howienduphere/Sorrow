@@ -13,6 +13,7 @@ $${\color{#6964B0}Kinnie \space of \space these \space sillys}$$
 
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/6112ccc7df316fd60cd521a1383ea1315356da44/IMG_8575.jpeg) 
 
+
 $${\color{#6964B0} I \space was \space never \space really \space good \space interacting \space with \space people }$$
 
  $${\color{#D9D0D0}I'm \space socially \space awkwardly \space and \space I \space don't \space know \space much \space how \space to \space interact \space with \space people \space so \space bear \space with \space me \space pls \space}$$
@@ -21,13 +22,18 @@ $${\color{#D9D0D0} while \space I \space try \space to \space learn \space how \
 
 $${\color{#A9AFC7} Sometimes \space or \space most \space of \space the \space time \space I'm \space offtab \space so \space don't \space think \space I'm \space ignoring \space you \space I \space eventually \space respond \space }$$ *˶o̴̶̷᷄‸o̴̶̷̥᷅˶*
 
+
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/c2ed5f9c005cbb7bf4e43387d851d1c5dac3040d/IMG_8595.jpeg) 
 
+
 $${\color{#6F9CC7}20yo. \space \color{#B8BFE3}Asexual. \space \color{#D2C1E6}Multifandom}$$
+
+  $${\color{#DBBDCA} Artist \space yeah}$$
 
 $${\color{#B2BCEB}Eng/Esp}$$
 
 $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space english \space sometimes \space I \space keep \space practicing \space it \space since \space it's \space not \space my \space first \space language \space}$$
+
 
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/917d7f600462d483a8dc91d69d2f15fd1ef5920e/IMG_8598.jpeg) 
 
@@ -101,7 +107,7 @@ $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space engli
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/0429293b8e8f076235adeda2daffa7e6538e5f89/214%20sin%20ti%CC%81tulo_20261018125228.png)
 
 
-$${\color{#CED8DE} ˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \space friends! \space very \space much,\space they \space are \space precious \space and \space important \space to \space me \space ⋆౨ৎ˚⟡˖ ࣪}$$
+$${\color{#CED8DE}˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \space friends! \space very \space much,\space they \space are \space precious \space and \space important \space to \space me \space ⋆౨ৎ˚⟡˖ ࣪}$$
 
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/685042564bf09cdab90de5ffa187fd11beddf9d9/213%20sin%20ti%CC%81tulo_20261018122234.png)
 
@@ -112,3 +118,5 @@ $${\color{#CED8DE} ˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \
 
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/2a2524972dc331999ec2ff80c3186d2607057f76/IMG_8594.gif)
 
+
+$${\color{#DBBDCA}strawpage \space still \space in \space progress \space soon! }$$
