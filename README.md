@@ -97,3 +97,9 @@ $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space engli
 
  </details>                                       
 
+
+![image alt](https://github.com/Howienduphere/Sorrow/blob/4a8ae74683a9cc6136c2e7f839bae2fa025b26f7/213%20sin%20ti%CC%81tulo_20261018122234.png)
+
+
+$${\color{#CED8DE} ˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \space friends! \space very \space much,\space they \space are \space precious \space and \space important \space to \space me \space ⋆౨ৎ˚⟡˖ ࣪}$$
+
