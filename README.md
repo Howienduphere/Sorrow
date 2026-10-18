@@ -32,6 +32,68 @@ $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space engli
 ![image alt](https://github.com/Howienduphere/Sorrow/blob/917d7f600462d483a8dc91d69d2f15fd1ef5920e/IMG_8598.jpeg) 
 
 
-▸ $\color{#E8CFE4}{\textsf{Dni}}$
+<details><summary>$\color{#E8CFE4}{/{Dni}}$</summary
 
-<p align="left">
+            *-15                                 
+            *Just don't be weird       
+           *Basic Dnis
+          *Rude people
+
+          *people homophobic 
+
+           *problematic people
+
+               *Proshippers 
+
+         *trump and ices supporters 
+
+            *uncomfortable topics
+
+
+</details>                               
+
+
+<details><summary>$\color{#E8CFE4}{/{Boundaries}}$</summary
+                                                   
+    *I'm usually suspicious at first if I barely know you
+
+    *Avoid asking me things that go against my privacy if I barely know you
+
+    *I'm too shy so I don't talk much sometimes and I always ask if something makes you
+     uncomfortable about me pls let me know! 
+
+    *I respect sincerity and honesty very much if something bothers you or makes you uncomfortable or you have to tell me something let me know right away to avoid misunderstandings
+
+    *keep me out of drama that doesn't involve me
+
+    *Don't talk to me rudely or condescendingly
+  
+</details>
+ 
+ <details><summary>$\color{#E8CFE4}{/{Ponytown}}$</summary
+  
+    *Pls int you can sit with my pony if you want you are welcome just don't be weird that's all
+
+    *I don't talk much if I barely know you so if I stay quiet it's because I'm having a crisis whether to talk or not so let me know if you want to talk or not it would help me a lot ^^!
+
+    *Many times or most of the time I'm afk or offtab so if you text to me I won't answer right away so talk to me in whisper to see your message and answer you pls
+
+    
+</details>
+    
+
+<details><summary>$\color{#E8CFE4}{/{byi}}$</summary 
+  
+    *I have religious trauma bear with me pls -w,-
+
+    *I'm too emotional
+
+    *you're free to block me if you are no comfortable with me It's okay 
+
+    *don't hate the things I like
+
+    *If you are genuinely a bad person in general or a boundary breaker I will block you
+
+
+ </details>                                       
+
