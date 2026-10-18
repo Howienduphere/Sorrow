@@ -103,7 +103,7 @@ $${\color{#B891B5}I'm \space sorry \space for \space the \space bad \space engli
 
 $${\color{#CED8DE} ˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \space friends! \space very \space much,\space they \space are \space precious \space and \space important \space to \space me \space ⋆౨ৎ˚⟡˖ ࣪}$$
 
-![image alt](https://github.com/Howienduphere/Sorrow/blob/0429293b8e8f076235adeda2daffa7e6538e5f89/214%20sin%20ti%CC%81tulo_20261018125228.png)
+![image alt](https://github.com/Howienduphere/Sorrow/blob/685042564bf09cdab90de5ffa187fd11beddf9d9/213%20sin%20ti%CC%81tulo_20261018122234.png)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rl2pkr6whcdnvwceuin2f5zd2y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=b9bbff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
