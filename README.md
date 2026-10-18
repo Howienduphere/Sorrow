@@ -107,3 +107,8 @@ $${\color{#CED8DE} ˚ ༘ ೀ⋆｡˚\space I \space love \space all \space my \
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rl2pkr6whcdnvwceuin2f5zd2y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=b9bbff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+![image alt](https://github.com/Howienduphere/Sorrow/blob/2a2524972dc331999ec2ff80c3186d2607057f76/IMG_8594.gif)
+
